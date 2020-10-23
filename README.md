@@ -1,1 +1,1 @@
-Cryptomix is a initial palestinian coin
+Cryptomix is a initial pal coin
